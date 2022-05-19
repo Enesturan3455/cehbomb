@@ -1,0 +1,2 @@
+# cehbomb
+%95 TÜRKÇE CEHARŞİVİM ÖZEL SMS BOMBER
